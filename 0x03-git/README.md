@@ -1,2 +1,5 @@
 # holbertonschool-zero_day!
-Este proyectos lo estoy haciendo con Yeraldine ¡¡¡
+Este proyectos lo estoy haciendo con Yeraldine  y EVELYN :) ¡¡¡
+---
+### update cualquier vaina
+---
